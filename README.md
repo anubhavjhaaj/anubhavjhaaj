@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding,trading.
 - 🌱 I’m currently learning everything.
 - 💞️ I’m looking to collaborate on trading and coding.
-- 📫 How to reach me 6203761693
+- 📫 How to reach me email : anubhavjha0123456789@gmail.com
 
 <!---
 anubhavjhaaj/anubhavjhaaj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
